@@ -59,4 +59,5 @@
 
 Имеда Шерифадзе  
 [📧 isheriphadze@gmail.com](mailto:isheriphadze.com)
+
 https://t.me/NeuroFusionHub
